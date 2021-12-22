@@ -16,4 +16,6 @@ Sevastopol, Russia *(2006-2010)*
 **Project Management Specialization** in UC Irvine
 California *(Sep 2017 - Apr 2018)*
 ----------
-
+###Languages###
+**English** B1
+**Polish** B1
